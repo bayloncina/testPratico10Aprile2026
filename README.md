@@ -1,0 +1,2 @@
+# testPratico10Aprile2026
+testPratico10Aprile2026
